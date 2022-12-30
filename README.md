@@ -1,1 +1,3 @@
-Hi, I'm Iris. I like coding, writing and my wife. I don't like people... please don't contact me UwU
+hi, im iris. i like coding, writing and my wife. i dont like people... please don't contact me UwU
+
+i also love nuggies 🥺👉👈
